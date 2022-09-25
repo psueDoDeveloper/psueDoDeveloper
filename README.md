@@ -1,6 +1,6 @@
 - Hello, @psueDoDeveloper here,
 - 👀 I’m interested in ... things that shouldn't be discussed on github.
-- 🌱 I’m currently learning ... minding my own business ... try it sometime.
+- 🌱 I’m currently learning ... things that should've been obvious from the beginning.
 - 💞️ I’m looking to collaborate on ... things that shouldn't be discussed on github.
 - How to reach me ... don't.
 
