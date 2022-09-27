@@ -1,6 +1,6 @@
 - Hello, @psueDoDeveloper here,
 - 👀 I’m interested in ... things that shouldn't be discussed on github.
-- 🌱 I’m currently learning.
+- 🌱 I’m currently learning ... solar2d, unreal, dismantling, etc.
 - 💞️ I’m looking to collaborate on ... things that shouldn't be discussed on github.
 - How to reach me ... don't.
 
