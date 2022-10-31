@@ -1,5 +1,5 @@
 - Hello, @psueDoDeveloper here,
-- 👀 I’m observing ... digital productions that shouldn't be discussed on github e.g.iamnotmy*.
+- 👀 I’m observing ... how to create digital productions that shouldn't be discussed on github e.g.tenyearnight.
 - 🌱 I’m currently learning ... c++, rust, unreal, solar2d, texturepacker, e.t.c.(low blow, school days (tbtnotheanime)(povr))
 - 💞️ I’m always looking to collaborate on ... c++, was 2 distracted 2 properly process coursework (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/)).
 - How to reach me ... you'd have a better chance of reaching gwynn in dark souls II (fiends always on patrol nearby holding aluminium cans), & you might wanna wait till the unforgiving finish "making an example" out of me & "mine", but for now you can use this temp address: psuedodeveloper1@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it.
