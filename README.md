@@ -4,7 +4,7 @@
 - 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework (RIP oldays (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
 - How to reach me ... use this temp address: psuedodeveloper2@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it (anotherday4u&mein"paradise").
 
-P.s. Always laughing @ the irony of getting beaten up for coming in last.
+-p.s. Always laughing @ the irony of getting beaten up for coming in last (you definitely get nothing).
 
 <!---
 psueDoDeveloper/psueDoDeveloper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
