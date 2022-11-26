@@ -1,10 +1,10 @@
 - Hello, @psueDoDeveloper here,
-- 👀 I’m hikikomoring (might have to move to the countryside using a bye bye orb now that the city is getting unfriendlier than usual (far too much intelligence abuse of women to the point that it's a norm now, we forgot we had mothers) & the coast is still a pipe dream)... howto create digital productions that shouldn't be discussed on github e.g.tenyearnight.
-- 🌱 I’m currently learning ... c++, rust, unreal, solar2d, texturepacker, e.t.c. or considering just abandoning the software game & former associates screaming for help nearby (just that what everyone else nearby (and far as well) wants more than their screams to end, is what they do/have done for me to end) and marketing benefits of crypto & hemp (better than nothing). 
+- 👀 I’m hikikomoring (but who wouldn't like to move to a part of the countryside somewhere using a cppuwouldntwannabbu faretheewell and l'ea've simply now that the city is unfriendlier than before & the coast is still a pipe dream for prodigal squanderers of non-existent inheritances)... howto create digital productions that shouldn't be discussed on github e.g.tenyearnight and howto not play along without even trying.
+- 🌱 I’m currently learning ... c++, rust, unreal, solar2d, texturepacker, e.t.c. or considering just abandoning the software creation game, people screaming for help nearby, as well as government and military control systems for the "non-essentials"/"on our sh*t list" (for legal and valid reasons, of course, such as don't personally like em for whatever reason imaginable) and marketing benefits of crypto & hemp (better than nothing). 
 - 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework (RIP oldays (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
 - How to reach me ... use this temp address: psuedodeveloper2@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it (anotherday4u&mein"paradise").
 
--p.s. Always laughing @ the irony of getting beaten up for coming in last (the reward is nothing).
+- p.s. Always laughing @ the irony of getting bombarded for coming in last (the reward is nothing).
 
 <!---
 psueDoDeveloper/psueDoDeveloper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
