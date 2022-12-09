@@ -1,4 +1,4 @@
-- Hello, @psueDoDeveloper here,
+- Hello, psueDontDevelopMuch here,
 
 - I’m hikikomoring (though (what can't be used against someone somewhere, huh?) who wouldn't like to move to a part of the countryside somewhere using a cppuwouldntwannabbu faretheewell and l'ea've simply now that the city is unfriendlier than before & the coast is still a pipe dream for prodigal squanderers of unreal inheritances)... howto create digital productions that shouldn't be discussed on github e.g.tenyearnight and howto not play along without even trying (why would fetishes get assaulted, or are we all supposed to be missionaries?).
 
