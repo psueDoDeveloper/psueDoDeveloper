@@ -4,7 +4,7 @@
 
 - I’m currently learning ... c++, rust, unreal, solar2d, texturepacker, e.t.c. or considering just abandoning the software creation game (optional malware inserts are too tempting for too many), commotions nearby (almost always a trap, can't even stop to help someone stranded on the side of the road @ night, if you value your mode of transport, ATM withdrawalimit, &/or life (after the death of your emotions)), as well as monarchal, governmental, military, not to mention "unregistered" organizations control systems, that make personal space their own business (ever heard of too much "assistance" with making terrible (just an opinion, not a judgement) fantasies real? as a revenge/"return of the dignity that was taken" tactic? since when was dignity worth unreality? someone who is aware of your dimensions could easily recreate you in their heads, that's called imagination, you have itoo). Either way, bystanders/smaller groups usually end up getting devoured when power struggles between such large scale organizations occur every now & then.
 
-- 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework, so that ship sailed off into the C.I.'sunset (RIP #bestdaysofyourlife (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
+- 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework, so that ship sailed off into a C.I.'sunset, no thanks to forcible assistance (RIP #bestdaysofyourlife (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
 
 - How to reach me ... use this temp address: psuedodeveloper2@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it (anotherday4u&mein"paradise").
 
