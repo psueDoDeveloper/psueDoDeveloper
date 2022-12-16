@@ -8,7 +8,7 @@
 
 - How to reach me ... use this temp address: psuedodeveloper3@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it (anotherday4u&mein"paradise").
 
-- p.s. Thinking of chrome's incognito tabs & the irony of getting bombarded for coming in last (the reward is nothing).
+- p.s. Thinking of chrome's incognito tabs & the irony of getting sound-projection bombarded for coming in last (the reward is nothing).
 
 - p.p.s. If you feel like being polite to people with a functioning sense of hearing, fill out this mailable form : You just *insert assumed crime here* your *insert assumed possession here*. Then send to the nearest dustbin (or better yet nearest firepit) & go make the most of what's left of your life while trying to understand the concept of minding your own business (as difficult as that may be).
 
