@@ -10,7 +10,7 @@
 
 - p.s. Thinking of chrome's incognito tabs & the irony of getting sound-projection bombarded for coming in last (the reward is nothing but still remain #greed(y)).
 
-- p.p.s. If you feel like being polite to people with a functioning senses (killed by the (door)bell), fill out this mailable form : You just *insert assumed crime here* your *insert assumed possession here*. Then send to the nearest dustbin (or better yet nearest firepit) & go make the most of what's left of your life while trying to understand the concept of minding your own business (as difficult as that may be).
+- p.p.s. If you feel like being polite to people with a functioning senses ((s)killed by the (door)bell), fill out this mailable form : You just *insert assumed crime here* your *insert assumed possession here*. Then send to the nearest dustbin (or better yet nearest firepit) & go make the most of what's left of your life while trying to understand the concept of minding your own business (as difficult as that may be).
 
 <!---
 psueDoDeveloper/psueDoDeveloper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
