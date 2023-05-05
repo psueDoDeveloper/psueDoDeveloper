@@ -6,7 +6,7 @@
 
 - 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework (always remember the #bestdaysofourvices (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
 
-- How to reach me ... use this temp address: psuedodeveloper4@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it, temporarily or otherwise (anotherday4u&mein"paradise").
+- How to reach me ... use this temp address: psuedodeveloper5@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it, temporarily or otherwise (anotherday4u&mein"paradise").
 
 - p.s. Thinking of chrome's incognito tabs & the irony of getting sound-projection bombarded for coming in last (the reward is nothing but still remain #greed(y)).
 
