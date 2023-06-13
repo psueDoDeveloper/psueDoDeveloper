@@ -1,4 +1,4 @@
-- Hello, psueDontDevelopMuch occasionally spilling the (giant (robot)) (jelly)beans(talk) AKA ranting here (FYI a couple social accounts pointing to this one either got compromised or deleted, so ignore their content, or not (if it's entertaining), until identified differently, i.e. only trust steam).
+- Hello, psueDontDevelopMuch occasionally spilling the (giant (robot)) (jelly)beans(talk) AKA ranting on a personal github account here (FYI a couple social accounts pointing to this one either got compromised or deleted, so ignore their content, or not (if it's entertaining), until identified differently, i.e. only trust steam).
 
 - I’m a recovering hikikomori, mostly because #goichisuda & #505games have been busy, (though who wouldn't like to move to a part of the countryside somewhere using a cppuwouldntwannabbu faretheewell and l'ea've simply now that the city life is costly & the coast is still a pipe dream)... but also looking into howto create digital productions that can't be bothered to discuss about on github e.g. ten(fine then, or twelve, happy?(of course not))year night, howto not play along without even trying (why wouldn't someonelses fetishes be none of your business), or vr'ing (sensoring) stan leesupporters & seth macfarlane'satirical representatives fighting against extreme healthcare while being the assumed hostages of hollandstories & gustave the crocodiles mercenaries, who're busy getting trapped in dundee's net, while the chairman informs plaque-readers that you're not considered a man till you walk along the ramparts of the G.W.o.C.), the end, since no one can beathem (doesn't mean you have to join them) #gravediggaz-(futanari)diaryofamadman.
 
@@ -6,7 +6,7 @@
 
 - 💞️ I’m always looking to collaborate on ... c++, was 2 d3r4il3d 2 properly process coursework (always remember the #bestdaysofourvices (p.s.(https://f-droid.org/en/packages/fr.nuage.souvenirs/))).
 
-- How to reach me ... use this temp address: psuedodeveloper5@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it, temporarily or otherwise (anotherday4u&mein"paradise").
+- How to reach me ... use this temp address: psuedodeveloper6@trashmail.fr . note that upon expiry it will be changed again unless there's no one left to change it, temporarily or otherwise (anotherday4u&mein"paradise").
 
 - p.s. Thinking of chrome's incognito tabs & the irony of getting sound-projection bombarded for coming in last (the reward is nothing but still remain #greed(y)).
 
