@@ -1,4 +1,4 @@
-- Hello, psueDontDevelopMuch occasionally spilling the (giant (robot)) (jelly)beans(talk) AKA ranting on a personal github account here (FYI a couple social accounts pointing to this one either got compromised or deleted, so ignore their content, or not (if it's entertaining), until identified differently, i.e. only trust steam).
+- Hello, psueDontDevelopMuch occasionally spilling the (giant (robot)) (jelly)beans(talk) AKA ranting on a personal github account here (FYI a couple social accounts pointing to this one either got compromised or deleted, so ignore their content, or not (if it's entertaining), until identified differently, i.e. only trust the minds.com connection).
 
 *not changing my rants here (literary gold), despite slight improvements in life, but at least being kept busy by formal employment (in tech) at the moment and aiming for more of a future as well.
 
